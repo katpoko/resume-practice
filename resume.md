@@ -34,7 +34,7 @@
 
 # KATHERINE POKORNY
 
-### _Happy to be on the food chain at all._
+### _An OG Millenial expanding their repertoire..._ <p> ...and also really passionate about sustainable graphic design, accessibility, and travel. </P>
 
 ## Find Me on the Internet
 
